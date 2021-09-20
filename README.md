@@ -1,1 +1,0 @@
-https://LeraMaevskaya.github.io/rsschool-cv/cv
